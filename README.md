@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to code 
 - 💞️ I’m looking to collaborate on any ideas that would sharpen my journey with coding and creation
 - 📫 How to reach me...whatssap at 0746960538
-- 😄 Pronouns: nick0
+- 😄 Pronouns: he|him
 - ⚡ Fun fact:am a very very resilient person
 
 <!---
